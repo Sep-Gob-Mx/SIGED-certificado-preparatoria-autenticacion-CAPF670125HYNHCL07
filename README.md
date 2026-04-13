@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAPF670125HYNHCL07
+CAPF670125HYNHCL07
